@@ -9,6 +9,8 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 Not a huge fan of people I'm not close with being weird or inappropriate towards me on PT. You may get hidden for making me or someone else I'm talking to uncomfortable/annoyed.
 
+I generally only hide annoying people for 15mins or a few hours, but random people idk who act inappropriate tend to receive a day.
+
 # My DNI Criteria: 
 
 -General Criteria, so no basic bigots and no pedos/zoos
