@@ -36,4 +36,6 @@ I'm socially anxious half of the time, so I'm sorry if I act a bit weird (distan
 
 Respect when my name has any DNI variation, I guess it doesn't hurt to ask to INT if I'm on DNI/IWC but don't lose your hopes either.
 
+Usually comfortable with C+H, unless I'm already sitting with friends or on DNI.
+
 There should be links to my strawpage and pronouns card if you wanna know more. I experiment with my pages and sites from time to time.
