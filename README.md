@@ -2,6 +2,9 @@
 Enber/Len (main names)
 
 8teen, INFP 4W5, ♐
+
+Discord: _enberneutral
+
 _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ 
 
 Not a huge fan of people I'm not close with being weird or inappropriate towards me on PT. You may get hidden for making me or someone else I'm talking to uncomfortable/annoyed.
