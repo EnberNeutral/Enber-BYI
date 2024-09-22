@@ -1,43 +1,43 @@
-# BIO (wip?)
-Enber/Len (main names)
+# Before You Interact (On Ponytown, Summarized)
 
-8teen, INFP 4W5, ♐
+***18**/**Major**; Often **Offtab** or **~~Afk~~**; Socially **Anxious**/~~Skittish~~ + **~~Low~~ Social Battery***
 
-Discord: _enberneutral
+* *DNI if you're radqueer, radfem/terf, proshipper, groomer, anti-otherkin, or just bigoted in general*
 
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ 
+* *Likes sfw interaction, uncomfy with nsfw interaction (jokes are on thin ice)*
 
-Not a huge fan of people I'm not close with being weird or inappropriate towards me on PT. You may get hidden for making me or someone else I'm talking to uncomfortable/annoyed.
+* *Feel free to whisper, crown, or say just "Hi" in general, that's okay*
 
-I generally only hide annoying people for 15mins or a few hours, but random people idk who act inappropriate tend to receive a day.
+* *(if you're chill, then we're chill :) /gen)*
+  
 
-# My DNI Criteria: 
+# I block/hide players when;
 
--General Criteria, so no basic bigots and no pedos/zoos
+1. **I'm disrespected by strangers**, sometimes I'll try to discuss it with those I deem "worth my time" but honestly, my DNI is right above and I stated I'm uncomfy with nsfw
 
--Proshippers, and any other subcategory associated with them
+* | *hidden status duration; 24hrs to 7days (varies)*
 
--Radqueers, Xenosatanists, Transid... You've got no safeplace here
+2. **Mentioning things I'd be uncomfy with**, only applies to players I never talked to in my vincinity and I never block people I'm talking to directly (even if you're a stranger)
 
--Zionists/Pro-Israel
+* | *blocked chat status duration; 24hrs at maximum*
 
--Loli/Shotacon, the exit's right over there
+3. **Disinterest with interacting and/or strangers interacting while I'm on DNI**, though I apologize if I do hide you when I'm not interested, I'm not always in the mood to make new friends or have lengthy conversations
 
--Anti-Otherkin or Anti-Alterhuman, goodbye I'm literally a haunted puppet/doll ✋💀 /srs
+* | *hidden status duration; 15mins to 24hrs (varies)*
 
-# Thin Ice:
+______________________________________________________________________________
 
--Simps or fanbases of my fictionkins (ex: Scaranation, Blade simps, pretty much most Coroika simps... etc.)
+*Generally most **UNLIKELY** to hide or block friended ponytown players, or friends made on Discord; if anything **I'll try to** talk it out cuz y'all worth my time.*
 
-(Honestly I don't really see the need to add my Thin Ice criteria to other bios since it's common sense not to make suggestive comments towards a fictionkin of a character)
-
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ 
+*Y'all are "**somebodies**". /gen*
 
 
-I'm socially anxious half of the time, so I'm sorry if I act a bit weird (distant/detached/aloof/mean) around new people or friends. /srs /g
+***I try not** to hide players, without warning, that have stated in their own bios that it would cause them **anxiety**/**paranoia**/**panic**.* 
 
-Respect when my name has any DNI variation, I guess it doesn't hurt to ask to INT if I'm on DNI/IWC but don't lose your hopes either.
+*Honestly, **~~super~~** understandable. /srs /gen*
 
-Usually comfortable with C+H, unless I'm already sitting with friends or on DNI.
 
-There should be links to my strawpage and pronouns card if you wanna know more. I experiment with my pages and sites from time to time.
+*I'm **biased** and **prefer** making friends with people who have the **same interests** as **~~me~~** or have something else about them that just,, idk seems **cool** or **relatable** to me*
+
+
+**[Check for links in my Github for more]**
