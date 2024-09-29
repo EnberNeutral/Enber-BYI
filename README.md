@@ -27,7 +27,7 @@
 
 ______________________________________________________________________________
 
-*Generally most **UNLIKELY** to hide or block friended ponytown players, or friends made on Discord; if anything **I'll try to** talk it out cuz y'all worth my time.*
+*Generally most **UNLIKELY** to hide or block friended ponytown players, friends made on neospring or discord; if anything **I'll try to** talk it out cuz y'all worth my time.*
 
 *Y'all are "**somebodies**". /gen*
 
