@@ -1,1 +1,1 @@
-(Consult my rentries, such as /Toewalker)
+(Consult my rentries, such as /Inkling-A-Loeil-Du-Faucon)
